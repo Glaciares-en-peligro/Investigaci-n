@@ -1,5 +1,4 @@
 # Protección Glaciares en Chile: Ley, Lobby y Constitución
-## ¿A que se enfrentan los glaciares en el sur de Chile y la Patagonia? 
 
 ![glaciares](https://www.terram.cl/wp-content/uploads/2020/07/blog-glaciar-2-1024x640.jpg)
 
